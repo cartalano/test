@@ -17,9 +17,23 @@ Passioné par l'art de l'image, ma curiosité et mon envie d'apprentissage ma po
 
 ## Les objectifs
 
-- Devenir RICHE en connaissances....
-- Devenir RICHE en ....
+1. Devenir RICHE en connaissances....
+2. Devenir RICHE en  ...
+1. devenir RICHE en
+
+### Mes peurs (mais le dites à personnes)
+Non je rigole j'ai peur de rien ;)
+
+## Les choses que j'attend avec impatiences
+1. Devolloper un site de A à Z
+2. être en confiance pour trouver un stage
+3. LE stage 
+
+## 3 choses que j'apprécie pour travailler en équipe
+1. La bienveillance
+2. l'honnêteté
+3. l'entre aide
 
 ![CHARLES](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzJ5OGFmMWRlOTF2a251bW15NWNxMXZhb3dxZDR4OGJlaGg4anNodiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KFnyQqIO1Di1PYYutf/giphy.gif)
 
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+

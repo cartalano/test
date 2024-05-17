@@ -20,4 +20,6 @@ Passioné par l'art de l'image, ma curiosité et mon envie d'apprentissage ma po
 - Devenir RICHE en connaissances....
 - Devenir RICHE en ....
 
-![CHARLES] (https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzJ5OGFmMWRlOTF2a251bW15NWNxMXZhb3dxZDR4OGJlaGg4anNodiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KFnyQqIO1Di1PYYutf/giphy.gif)
+![CHARLES](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzJ5OGFmMWRlOTF2a251bW15NWNxMXZhb3dxZDR4OGJlaGg4anNodiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KFnyQqIO1Di1PYYutf/giphy.gif)
+
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
